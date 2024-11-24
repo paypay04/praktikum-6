@@ -1,12 +1,7 @@
-
-
-
-
-
-
-
-
-
+![codingan praktikum 6 foto](https://github.com/user-attachments/assets/9eb6c96f-d264-442d-b51c-6f8e163de45f)
+![codingan praktikum 6 foto 2](https://github.com/user-attachments/assets/fe12570e-4b61-4823-bd1b-6d68bcb9cbac)
+![codingan praktikum 6 foto 3](https://github.com/user-attachments/assets/9ec101b2-cc50-4df3-aa42-2ee98bb39614)
+![codingan praktikum 6 foto 4](https://github.com/user-attachments/assets/3c192f26-aba2-4fc1-b23e-001183357eec)
 
 
 
